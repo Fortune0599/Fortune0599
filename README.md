@@ -33,7 +33,7 @@
 
 ## 📬 Contato
 📧 E-mail: **faudate27@yahoo.com**  
-💼 [LinkedIn](www.linkedin.com/in/fortune-aristote-audate-8697572aa)  
+💼 [LinkedIn](https://www.linkedin.com/in/fortune-aristote-audate-8697572aa/)  
 
 ---
 
